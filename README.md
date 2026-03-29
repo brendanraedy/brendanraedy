@@ -41,6 +41,7 @@ and in genuine connection with the people around you.
 - WordPress: [Brendan Raedy Blog](https://yourwordpress.com)
 - Blogger: [Brendan Raedy on Blogger](https://yourblogger.com)
 - Scribd: [Brendan Raedy on Scribd](https://scribd.com/BrendanRaedy)
+- Imgur: [Brendan Raedy on Imgur](https://imgur.com/gallery/brendan-raedy-presentation-AvQinvJ)
 
 ---
 
