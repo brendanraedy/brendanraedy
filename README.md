@@ -43,6 +43,15 @@ and in genuine connection with the people around you.
 - Scribd: [Brendan Raedy on Scribd](https://scribd.com/BrendanRaedy)
 - Imgur: [Brendan Raedy on Imgur](https://imgur.com/gallery/brendan-raedy-presentation-AvQinvJ)
 
+## Read More from Brendan Raedy on Medium
+
+- [Brendan Raedy — What Consistency Actually Looks Like](https://medium.com/@brendanraedy/brendan-raedy-what-consistency-actually-looks-like-3050c0a96687)
+- [Brendan Raedy — Who I Am Now](https://medium.com/@brendanraedy/brendan-raedy-who-i-am-now-e00d8c555b1a)
+- [Brendan Raedy — What I've Learned From Walking Every Day](https://medium.com/@brendanraedy/brendan-raedy-what-ive-learned-from-walking-every-day-afc0f5cd8956)
+- [Brendan Raedy — Setting the Record Straight](https://medium.com/@brendanraedy/brendan-raedy-setting-the-record-straight-6a7f4b4c511a)
+- [Who Is Brendan Raedy — An Inside Look at His Vision and Impact](https://medium.com/@brendanraedy/who-is-brendan-raedy-an-inside-look-at-his-vision-and-impact-ac8d3c417999)
+- [Brendan Raedy — The Benefits of Digital Organization](https://medium.com/@brendanraedy/the-benefits-of-digital-organization-brendan-raedy-on-optimizing-your-digital-workspace-for-1e1a800f7367)
+- [Brendan Raedy — On the Importance of Structured Daily Routines](https://medium.com/@brendanraedy/brendan-raedy-on-the-importance-of-structured-daily-routines-91a92c1fb745)
 ---
 
 *Brendan Raedy — keeping it simple, staying grounded, 
